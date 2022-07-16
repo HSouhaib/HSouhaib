@@ -7,5 +7,5 @@
 - 💬 Ask me about why did i choose MS technologies?
 - 📫 How to reach me: on my linkedlin(https://www.linkedin.com/in/hassainate-s-783793154/).
 - 😄 Pronouns: He/Him.
-- ⚡ Fun fact:learning addict. 
+- ⚡ Fun fact: Learning addict. 
 
